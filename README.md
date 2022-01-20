@@ -1,4 +1,1 @@
-# Chris
-###### Chris
-#FxxingCCP
-#好煩
+#ROCK YA!!
